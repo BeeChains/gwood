@@ -1,4 +1,4 @@
-## G Wood | a Top Level Handshake(HNS) blockchain domain. Greenwood, SC in the house.
+## G Wood | a Top Level Handshake(HNS) blockchain domain. 
 
 | [SERVE THE LIGHT](http://workinthedark.servethelight.hns.to/) | [Contact](mailto:innerinetcompany@gmail.com) | [IINC](http://dlink.innerinetcompany.hns.to/) |
 
