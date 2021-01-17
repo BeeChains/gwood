@@ -7,3 +7,6 @@
 
 
 # Inner I Net Company, is alchemizing the roots of the World Wide Web by Spiritualizing the intellect and the internet from the [The Root Zone](http://therootzone.hns.to/) and the [Root Of Perception](http://rootofperception.hns.to/). The material minded "I" sees the world through factual knowledge, but the "I" of Spritualized intellect is the Foundation of Truth.
+
+# Get your on Comapany website, name or a freelace page at subdomain.gwood
+- [Contact](mailto:innerinetcompany@gmail.com)
